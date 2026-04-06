@@ -20,6 +20,6 @@
 
    [**───────────**]()
 
-**♩** [strawpage](https://abree.straw.page) 】 host **∗** [rentry](https://rentry.co/jx1_dx1) **⤸**
+**♩** [strawpage](https://abree.straw.page) 】 host **∗** [atabook](https://ihasafacelulzzz.atabook.org/) **⤸**
 
 [ノ]() **c+h welcome** ✦ taken by [**nilvoid sys + h8**]() [ᶻ 𝗓 𐰁]()
