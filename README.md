@@ -23,3 +23,6 @@
 **♩** [strawpage](https://abree.straw.page) 】 host **∗** [atabook](https://ihasafacelulzzz.atabook.org/) **⤸**
 
 [ノ]() **c+h welcome** ✦ taken by [**nilvoid sys + h8**]() [ᶻ 𝗓 𐰁]()
+
+
+im verynervous sometimes,,, i try to be friendly thoughj!!! ^_^
